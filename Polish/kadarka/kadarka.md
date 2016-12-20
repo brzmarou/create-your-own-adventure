@@ -7,7 +7,7 @@ W pobliskiej Biedronce kupujesz Kadarkę.
 
 Wpada Ci do głowy pomysł, że niekoniecznie chce Ci się iść tak daleko na lake. Może lepszym pomysłem będzie "impreza" za sklepem.
 
-Mo¿e masz ochotę przejść się na pobliską łąkę? A może urządzisz impreze za sklepem?
+Mo¿e masz ochotę przejść się na pobliską łąkę?
 
 Co robisz?
 
